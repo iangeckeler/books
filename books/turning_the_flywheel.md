@@ -10,7 +10,7 @@ What drives your economic and resource engine - what does the market want?
 # Flywheel
 
 think of amazon's flywheel
-![](https://www.google.com/url?sa=i&url=http%3A%2F%2Fwww.samseely.com%2Fblog%2F2016%2F5%2F2%2Fthe-amazon-flywheel-part-1&psig=AOvVaw0wLuUsOhsQNjI_BwNnusKY&ust=1594098637995000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCKjBparut-oCFQAAAAAdAAAAABAI)
+![](https://images.squarespace-cdn.com/content/v1/53927d9ae4b032d797fc4e14/1462246715105-X40CZ6YBA94XPIE5D95U/ke17ZwdGBToddI8pDm48kBeoRxHzo1RUSrrZIF-HLeFZw-zPPgdn4jUwVcJE1ZvWgCjmTad1QpYCGph9EV4QZUJFbgE-7XRK3dMEBRBhUpyoqe9nWBLmDQECrmzts7eGdS0AtUazOoo8CZyZcoVPFgjYNntavZZkY4bP82NL8Ko/image-asset.jpeg?format=1500w)
 
 positive feedback loop... activate through consistent and disciplined action
 
