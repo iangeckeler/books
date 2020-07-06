@@ -14,6 +14,10 @@ think of amazon's flywheel
 
 positive feedback loop... activate through consistent and disciplined action
 
+example: 
+
+go outside of comfort zone --> gain new skills and confidence --> inspires you to go outside of your comfort zone
+
 # Fire bullets then cannonballs 
 
 the best way to straetgically innovate is to make small bets don’t bet the whole farm... then when you reach success and validate something go all in...
